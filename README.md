@@ -1,1 +1,1 @@
-1337
+Pentest+, Cysa+, CC - CyberSecurity Analyst/Pentester
