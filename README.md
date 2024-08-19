@@ -1,1 +1,1 @@
-Pentest+, Cysa+, CC - CyberSecurity Analyst/Pentester
+Always learning
